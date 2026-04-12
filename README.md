@@ -78,7 +78,8 @@
   *Learning self-growth, independence, and emotional strength.*  
 
 - 🔥 **Turning Points** by Dr. A.P.J. Abdul Kalam  
-  *Insights on leadership, life decisions, and India's future vision.*  
+  *Insights on leadership, life decisions, and India's future vision.*
+
 
 ---
 
